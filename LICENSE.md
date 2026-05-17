@@ -1,4 +1,4 @@
-# 
+# new JetBrains PyCharm para PC plugins é o melhor JetBrains PyCharm para PC plugins com gerenciamento de coleções e depurador. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
